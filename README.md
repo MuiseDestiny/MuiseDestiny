@@ -1,5 +1,3 @@
-- 👋 Hi, I'm @MuiseDestiny
-
 `To realize that the past is not to be admonished and to know that the future can be pursued.`
 
 <!---
